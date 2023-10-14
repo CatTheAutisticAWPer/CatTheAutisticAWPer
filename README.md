@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CatTheAutisticAWPer
+- 👋 Hi, I’m Cat
 - 👀 I’m interested in ... potatoes
 - 🌱 I’m currently learning ... how to breath water
 - 💞️ I’m looking to collaborate on ... throwing stones
